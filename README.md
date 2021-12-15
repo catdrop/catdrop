@@ -1,0 +1,3 @@
+- 👋 Hi, I’m @catdrop
+- 👀 I’m interested in cats
+- 📫 How to reach me code@catcoiner.tv
